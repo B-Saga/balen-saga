@@ -1,0 +1,16 @@
+
+*By Alaric Steinpeak, historian and adventurer. Excerpt of “History of the Vaelrian people'', published in 678 AS.*
+
+The Wyrmstein archipelago wasn’t always called that way; there were considered to be two different areas: the Draken islands and the Nagaggrat mountains. The Draken island were the name for the more habitable part of the archipielago, located around the center, north and west of the archipielago, while the Nagaggrat mountains were the cordillera of volcanoes and cloud-reaching mountains that surrounded the archipielago on the south and southeast, making it an almost impassable terrain for boats, something that continued up until the vaelrians learned the ways of how to build and navigate boats that could move through the ragged corals and vicious monsters encountered there.
+
+The archipelago is thought to have been a massive volcano, similar to Dragon’s Throne on the north of Zenria, that exploded during one of its eruptions, breaking a small continent into a cluster of small islands. This massive volcano is also the reason that this area hadn’t been colonized by indigenous people during earlier times. Other smaller volcanoes were still a part of the Nagaggrat mountains, but nothing akin to the original one.
+
+Although there have been proof salvaged from the reefs and sea bottom of the archipelago that dragons had lairs in the area before the continent-breaking eruption, none can be found there anymore; the only mystical creatures there now are the namesake of the Wyrmstein archipelago, the wyrms, the dumber and weaker cousin of the draconic species.
+
+The first known inhabitants of the island there are most likely to be the indigenous people from the southwest of Zenria judging by the ruins found in islands like Drakenschild, but there were so many colonizers from different places during the same era that it is hard to be certain of who was first; farmers from Landerleier, escaped slaves from the Sunset Empire, and navigators from distant regions; all of them atracted to the unclaimed territory that was extremely fertile for cultivation due to the origin of the islands.
+
+During the first century of colonization, the in-fighting inside the islands was fierce, each group wanting to seize control of the territory of the others given the difficulty they had in actually trading outside of the islands, an extremely risky undertaking by the time. But with the development of specialized boats and navigation techniques, the skirmishes and battles for territory stopped for a while.
+
+Then came the sundering. Thousands of people fleeing from the now broken Balenvhein, trying to escape the ravaged continent running to every possible direction, and one of those being south, directly to the Wyrmstone archipelago. The several different factions of the archipelago were actually quite interested in receiving these refugees from the destroyed Sunset Empire, as the technological advances from the empire were considered quite the prize by every nation in the known world, and the refugees had that knowledge with them when they fled. And with the sundering, magic came to the world, and Wyrmstone wasn’t unaffected by that .
+
+The changes brought by the new inhabitants of the archipelago and the advent of magic changed how things went inside of Wyrmstone.
